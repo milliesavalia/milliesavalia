@@ -1,2 +1,0 @@
-# milliesavalia
-Personal website
